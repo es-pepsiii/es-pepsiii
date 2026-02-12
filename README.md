@@ -1,5 +1,5 @@
 # Full List Of Fandoms
-... or games I like heh...
+... or just things I like heh...
 
 <Details close>
 <summary>Main fandoms I LOVEE!</summary>
