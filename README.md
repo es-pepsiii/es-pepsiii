@@ -1,8 +1,7 @@
-# Full List Of Fandoms
-... or just things I like heh...
+# About me !
 
 <Details close>
-<summary>Fandoms!!</summary>
+<summary>Full List Of Fandoms!!</summary>
 Fandoms where I'm in!! The ones with * are the most loved for me---
 Cult of the Lamb*, Inscryption*, South Park*, My Singing Monsters*, The Hex*, Friday Night Funkin, Animal Crossing, Bugsnax*, Yandere Simulator, Lacey’s Wardrobe, Mr. TomatoS & Ms.LemonS, Married In Red, Steven Universe, The Amazing World of Gumball, Assassination Classroom, Sky: Children of the light*, Kindergarten*, FNaF, Hotline Miami, TADC, Brawl Stars, Doki Doki Literature Club, Cookie Run Kingdom, Skullgirls, Baldi’s Basic, Her Tears Were My Light, Madness Combat, Dead Plate
 </Details>
